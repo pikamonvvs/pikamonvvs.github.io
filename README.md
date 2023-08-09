@@ -1,1 +1,0 @@
-# pikamonvvs.github.io
